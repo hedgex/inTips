@@ -1,0 +1,2 @@
+# inTips
+Thoughts about investment
